@@ -1,2 +1,2 @@
 # study_summarize
-code人，code魂，code都是人上人。
+只要你能静下心来，一切都能好起来的。
